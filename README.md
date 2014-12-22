@@ -36,11 +36,45 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Apophthegmes that is to saie, prompte, quicke, wittie and sentencious saiynges, of certain emperours
+
+1. NICOLAS VDALL VNTO the gentle and honeste herted readers well to fare.
+
+1. THE PREFACE OF DEsyderius Erasmus of Roterodame unto a dukes soonne of his countree
+
 #####Body#####
+
+1. ¶ A preamble of the enterpreter vnto the saiynges of SOCRATES.
+The saiynges of SOCRATES.OUt of the mouthe of SOCRATES it came,God is to be folowed as nere as we ma
+    _ The saiynges of SOCRATES.
+
+    _ THE SAIYNGES OF ARISTIPPVS.
+
+    _ THE SAIYNGES OF DIOGENES Cynici, wer philosophiers of the secte of Antisthenes & Diogenes & were called, Cynici either of the place Cinosarg•, wher Antisthen•s kepte his schole, orels of y• greke •otable 〈 in non-Latin alphabet 〉 doggues. Because thei wer euer moste importunely barkyng and raillynge against the vices of menne, orels bec•use ī wordes of rebaudrie and shamelesse speakynge, thei did with their foule mouthes represente the curryshenesse of doggues. THE CYNIKE•
+
+1. THE II. BOOKE.
+
+    _ THE SAIYNGES OF PHILIPPVS KYNG OF MACEDONIE.
+
+    _ THE SAIYNGES OF ALEXANDER THE GREATE.
+
+    _ THE SAIYNGES OF ANTIGONVS THE FIRST KYNG OF THE MACEDONIANS
+
+    _ THE SAIYNGES OF AVGVSTVS CAESAR.
+
+    _ THE SAIYNGES OF IVLIVS CAESAR.
+
+    _ THE SAIYNGES OF POMPEIVS THE GREATE.
+
+    _ THE SAIYNGES OF PHOCION
+
+    _ THE SAIYNGES OF MARCVS TVLLIVS CICERO.
+
+    _ THE SAIYNGES OF DEMOSTHENES THE ORATOVR.
 
 #####Back#####
 
+1. The Table.
+A.ABas the .xij. kyng of the Argiues166.Abstinence the Itatalians vse for all diseases278.Achilles.3BBAttail betwene Alexander and Darius.186.Beneficiall to a whole multitude.4.Bettre of byrth yt a chCCAlamitees vniuersall.37.Cātharis a lytle vermyn.103Callisthenes the disciple of Aristotle.107CaigD.DAnae the doughter of Acrisius166.Dariꝰ his offre to Alexāder.185Damasippꝰ praised his wyne of .xEEAtyng vnmeasurable.35.Eiuill, what it is.126.Eloquence of Plato.74.Empier, a reigne or Empier holdFFAme honeste, how it is to bee purchased.5.Fassion yt the Atheniens vsed with condēpned menne.••.2GGAza, a coūtree wher odours growe.18•.Galba had a misshapē bodie.235.Garlande Ciuike.254.Gallius.HHAste maketh waste.38.Harmodius.115.Harlottes.155.Haynous transgressions must be suppressed by due IIAmbique verses.13.Idlenesse is euermore worthee blame.10.Idees that Plato deuised.123.Ignoraunce iKKNowelage of morall philosophie, what it profiteth.10We knowe no more then is in our memorye.80.KynLLAercius a greke autour.16Lais an harlote of Corinth.55•342.Lacedemoniās exercised their children M.MAny mēne geue greater waiges to their horsekepers, then to the teachers of their children.•••ManN.NAme and fame honest, how to bee purchaced.5.Nature ••the prouyded for vs at necessarie houshold sO.O•seruaciō of sepulchres.236Octauiꝰ Augustus Caesar.225.Oedipus.91.92.Office of a schoole maistreP.PAcience of Socrates.11.12.19.22.24.25.34.Pacience of Aristippus.43.47Parentes foly in chastenyng QQVintus Luctacius Catulus.304.Quintus Cicero, the brother of Marcus Cicero.314.RRAillyng against menne without truthe, toucheth theim not.23.Repastes, measurably to bee taken.8.ReS.SAcrifice to God, ought not to bee ouersumptuous.2.Sacrificyng meate & drynke.30Sapien•e and learnTTAlkyng sheweth what a manne is.28.29.Taxiles one of the kynges of India.192.Tarraconia a countree VUArie•ee of learnyng maketh not a learned mā.49.Vaine sophisticacions are not to bee soyled.94.ValWWAyes to styll vnquyet persones.109.Wastefull lauessers of theyr goodes.134.Waye to wynne victorie.XXAntippa, Socrates hys wyfe.•0.Xantippa threwe a p•ssebolle on Socrates his head.24.Xantippes cancaYYMages are bought at high prices.88.Ymages, the true ymages of God.117.Younge mennes chiefest vertuZZEnon confuted by Diogegenes.94.Zele of Alexander towardes Homere.198.•EX FRVCTIBVS EORVM COGNOSCETIS EOSLONDINI. In officina Richardi Graftoni.Anno post natum Christum, 
 **Types of content**
 
   * There are 218 **verse** lines!
